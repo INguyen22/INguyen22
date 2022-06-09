@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ivy Nguyen or @INguyen22
 - 👀 I’m interested in reading, gaming, and eating
-- 🌱 I’m currently learning coding but i was once a pharmacy technician
+- 🌱 I’m currently learning coding but I was once a pharmacy technician
 - 💞️ I’m looking to collaborate on many things
 - 📫 you can reach me by email at ivyn2464@gmail.com
 
